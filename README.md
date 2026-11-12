@@ -1,4 +1,4 @@
-# Hi, I'm Sentinel Shadow 👋
+# Hi, I'm Taranveer Singh 👋
 
 I'm a student interested in:
 - 💻 Programming
